@@ -1,4 +1,4 @@
-我是一个粉刷匠，粉刷本领强。
+我是一个粉刷匠，粉刷本领强
 
 zhishi yinwei aiiqngde  liagq
 
@@ -11,4 +11,4 @@ wudishiduomege;qrhqohg
 
 egjegreqgrheqghqegqghqg
 
-zaishihaghegheo
+zaishihagheghe
